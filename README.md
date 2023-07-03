@@ -1,1 +1,1 @@
-# Castle-Siege-Super-Smash-Bros.-for-Wii-U-
+I imported Castle Siege from Super Smash Bros. for Wii U into Brawl. Comes with vBrawl, Project M Versions and Regular Form, Battlefield Form and Omega Form of the Stage. Please collab me if you make any edits and upload them to the Brawl Vault.
